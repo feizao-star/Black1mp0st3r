@@ -14,7 +14,6 @@
 
 <img width="600" height="80" alt="blinkie-sleepy-times-4x" src="https://github.com/user-attachments/assets/a02a19b6-8a96-442a-bb40-9a46bccc5afc" />
 
-<img width="155" height="20" alt="bubblewrap-glittergfx" src="https://github.com/user-attachments/assets/b4d71846-b2e4-4d35-92df-62bebd7c3fc0" 
 
 PLEASE DNI/IWEC IF YOU: PLAY DANDYS WORLD, SUPPORT HELLVERSE, OVER 20
 
