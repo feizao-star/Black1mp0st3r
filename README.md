@@ -15,7 +15,9 @@
 <img width="600" height="80" alt="blinkie-sleepy-times-4x" src="https://github.com/user-attachments/assets/a02a19b6-8a96-442a-bb40-9a46bccc5afc" />
 
 
-PLEASE DNI/IWEC IF YOU: PLAY DANDYS WORLD, SUPPORT HELLVERSE, OVER 20
+PLEASE DNI/IWEC IF YOU HAVE DRAMA, I DO NOT WANT IT IN MY SPACE !! THIS INCLUDES DRAMA STARTERS 
+
+i block freely.
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Arial&size=23&pause=1000&color=AB79F7F0&width=435&lines=love+us%2C+together.;an+eater%2C+i+need+her)](https://git.io/typing-svg)
 
